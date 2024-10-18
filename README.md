@@ -36,7 +36,8 @@ The evolution of the Burger King logo illustrates how branding can change over t
 In the following decades, the Burger King logo underwent further transformations, embracing color and modern graphic styles. The 1969 logo introduced the iconic bun sandwich style, with "BURGER KING" text placed between two orange semicircles representing a burger bun. This design became a recognizable icon and was updated in 1994 with a more vibrant color palette and slightly refined typography. By 1999, the logo embraced a more dynamic look with a curved blue line encircling the burger icon, suggesting motion and energy, aligning with the fast-paced nature of fast food. These logo changes demonstrate how Burger King continuously adapted its brand identity to stay relevant and appealing to its audience.
 
 #
-
+![Logos](https://github.com/user-attachments/assets/38a74986-5ab6-49ae-8be2-35e91f2c7d09)
+#
 ![GTA 5 Logos](https://github.com/user-attachments/assets/4e9fd2e3-cfb8-41be-a8a9-192911dd4079)
 
 #
