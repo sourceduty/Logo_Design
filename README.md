@@ -1,4 +1,5 @@
 ![ELEMENT](https://github.com/user-attachments/assets/e25932a4-aaff-4a7c-819a-eedf14bd938e)
+![Gump Logo](https://github.com/user-attachments/assets/5136a2d5-1b69-4cbc-b410-8be2fcc80d76)
 
 > Consistent business and brand symbolism.
 
