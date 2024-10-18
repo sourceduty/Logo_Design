@@ -41,6 +41,8 @@ In the following decades, the Burger King logo underwent further transformations
 ![GTA 5 Logos](https://github.com/user-attachments/assets/4e9fd2e3-cfb8-41be-a8a9-192911dd4079)
 #
 ![Logos](https://github.com/user-attachments/assets/9fd9d908-9f7f-41f0-98f5-a9812ddfb83d)
+#
+![NISSAN Concepts](https://github.com/user-attachments/assets/d7193db9-fbb4-4ab8-bc80-16f6ea7cc476)
 
 #
 ### Related Links
