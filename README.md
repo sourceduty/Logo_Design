@@ -1,4 +1,4 @@
-![Logos](https://github.com/user-attachments/assets/9fd9d908-9f7f-41f0-98f5-a9812ddfb83d)
+![ELEMENT](https://github.com/user-attachments/assets/e25932a4-aaff-4a7c-819a-eedf14bd938e)
 
 > Consistent business and brand symbolism.
 
@@ -39,6 +39,8 @@ In the following decades, the Burger King logo underwent further transformations
 ![Logos](https://github.com/user-attachments/assets/38a74986-5ab6-49ae-8be2-35e91f2c7d09)
 #
 ![GTA 5 Logos](https://github.com/user-attachments/assets/4e9fd2e3-cfb8-41be-a8a9-192911dd4079)
+#
+![Logos](https://github.com/user-attachments/assets/9fd9d908-9f7f-41f0-98f5-a9812ddfb83d)
 
 #
 ### Related Links
