@@ -1,5 +1,5 @@
 ![Example](https://github.com/user-attachments/assets/8a9cb80b-1b40-4284-ad7f-430b1ac4e974)
-![ELEMENT](https://github.com/user-attachments/assets/e25932a4-aaff-4a7c-819a-eedf14bd938e)
+![Adidas Logo Sucks](https://github.com/user-attachments/assets/aae652e7-85c4-45ff-bd1e-a95f5267e15c)
 
 > Consistent business and brand symbolism.
 
@@ -12,7 +12,7 @@ Moreover, a strong logo serves as the cornerstone of a brand’s visual identity
 #
 ### Fan Art Logos
 
-![Stratton Oakmont Fan Art Logo](https://github.com/user-attachments/assets/bc1ad417-17bf-4009-9c9a-ce9034748faf)
+![ELEMENT](https://github.com/user-attachments/assets/e25932a4-aaff-4a7c-819a-eedf14bd938e)
 
 This fan art design for "Stratton Oakmont Inc." is a striking reinterpretation of the infamous brokerage firm logo, capturing both the power and intensity associated with the company’s image as portrayed in popular culture. The lion, a symbol of strength and authority, is a fitting centerpiece, reflecting the firm’s ambitious and aggressive persona. By incorporating a globe in the background, the design suggests a sense of global influence and reach, reinforcing the firm’s far-reaching impact. The two versions of the design offer contrasting approaches: the left with a more minimalist and classical lion head, and the right with a bolder, more dynamic rendition. The choice of a high-contrast black and white color scheme lends an air of sophistication and seriousness, which is fitting for a financial company while simultaneously enhancing the logo's visual impact.
 
