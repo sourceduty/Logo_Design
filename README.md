@@ -1,4 +1,4 @@
-![Example](https://github.com/user-attachments/assets/9ddee008-a929-4809-ac6e-d38b2472606d)
+![Example](https://github.com/user-attachments/assets/8a9cb80b-1b40-4284-ad7f-430b1ac4e974)
 ![ELEMENT](https://github.com/user-attachments/assets/e25932a4-aaff-4a7c-819a-eedf14bd938e)
 
 > Consistent business and brand symbolism.
