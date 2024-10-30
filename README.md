@@ -43,9 +43,9 @@ In the following decades, the Burger King logo underwent further transformations
 #
 ![Logos](https://github.com/user-attachments/assets/9fd9d908-9f7f-41f0-98f5-a9812ddfb83d)
 #
-![NISSAN Concepts](https://github.com/user-attachments/assets/d7193db9-fbb4-4ab8-bc80-16f6ea7cc476)
-#
 ![Racing NOS](https://github.com/user-attachments/assets/2188985a-14fb-49c1-bf51-e3f27bcf7bf9)
+#
+![Logos](https://github.com/user-attachments/assets/a450d30d-f82c-49c7-868f-c39659537c61)
 
 #
 ### Related Links
